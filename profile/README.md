@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-# Welcome to CFP Energu - an Energy and Environmental Solutions Company
+# Welcome to CFP Energy
 
 🌿 Leading the Way to a Sustainable Future
 
