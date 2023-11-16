@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-# Welcome to CF Partners - Energy and Environmental Solutions
+# Welcome to CFP Energu - an Energy and Environmental Solutions Company
 
 🌿 Leading the Way to a Sustainable Future
 
